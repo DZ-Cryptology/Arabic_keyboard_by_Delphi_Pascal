@@ -10,7 +10,7 @@ everyone are welcome if want to participate .<BR><BR>
   لا تنسى الاشتراك في قناتنا
   <BR><BR><BR><BR>
   
- <p><a href="https://youtu.be/oVygv66I1Lc"><img src="https://iili.io/HhB4raj.png" style="width:560px;height:315px;"></a></p>
+ <p><a href="https://youtu.be/oVygv66I1Lc"><img src="https://iili.io/HhB4raj.png" style="width:728px;height:410px;"></a></p>
 
 
 <BR><BR><BR><BR><BR><BR>
